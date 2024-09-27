@@ -1,16 +1,11 @@
-## Hi there 👋
-
-<!--
-**paulogabriel12345678/paulogabriel12345678** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+- Eu sou o Paulo
+- Tenho 17 anos
+- soy pablo escobar gaviria📍
+- plata ou plomo🧏
+- somos do cartel de medelin🥇
+- tropado777aqui🎰🎲
+- nao sangre em tanque de tubaroes
+- tonny country☯️🔞
+- professor/vulgo gustavo lima
+- odeio o denis
+- como 5 prato de comida
