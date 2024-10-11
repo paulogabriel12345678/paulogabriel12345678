@@ -9,3 +9,5 @@
 - professor/vulgo gustavo lima
 - odeio o denis
 - como 5 prato de comida
+
+![](https://media1.tenor.com/m/V_wc7FTe0pQAAAAC/yin-yang-spin.gif)
